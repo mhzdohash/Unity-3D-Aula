@@ -1,2 +1,0 @@
-# Personagem-3D
- 
